@@ -16,7 +16,7 @@
 
 #### Fred Brooks Posse
   * Alan Smith:
-  * Hillary Denton:
+  * Hilary Denton:Danny Garcia, 8/26, 5-6 or 7-8, Dinner Dash stuff
   * Kavita Sachdeva:Laura Steadman, 8/26, evening, TBD
   * Rolando Navarrete:
 
